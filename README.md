@@ -1,1 +1,1 @@
-sou da ze🤔🤔
+sou da ze😏😏
